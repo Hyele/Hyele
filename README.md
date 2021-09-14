@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Hyele
+- 👀 I’m interested in learning python 
+- 🌱 I’m currently learning Basics of python
+- 💞️ I’m looking to collaborate on --- 
+- 📫 How to reach me Hyele#0198-->Discord.
